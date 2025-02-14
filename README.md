@@ -27,9 +27,8 @@
 
 ## 📫 Let's Connect  
 🔗 [GitHub](https://github.com/josephnjuguna)  
-📧 Email: your.email@example.com  
-🐦 Twitter: [@yourhandle](https://twitter.com/yourhandle)  
-💼 LinkedIn: [Your Profile](https://linkedin.com/in/yourprofile)  
+📧 Email: jnjugunam8@gmail.com 
+🐦 
 
 💡 *"Code is like poetry, but with fewer bugs!"* 🚀  
 
